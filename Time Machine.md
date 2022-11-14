@@ -18,7 +18,7 @@
 
     > The jumping sun became a line of fire, the moon a fainter line that changed in width. 
 
-    > Minute by.minute white snow spread across the world and disappeared, and was followed by the green of spring.
+    > Minute by minute white snow spread across the world and disappeared, and was followed by the green of spring.
 
   - The way of Participation was restored to its more primitive form, people in the future actually believe in myth!
 
@@ -28,7 +28,7 @@
 
     > As I watched, I began to try to understand the things I had seen. (Afterwards I realised I had only learned half the truth.)
 
-  - Our pursuit of science & safety makes everything more organized, controlled, but sometimes contains an atmosphere of lifelessnes in it. (The opposition of Chaos & Order, of Dionysus & Appolo. To quote William Blake, "Without opposition, there is no progression.")
+  - Our pursuit of science & safety makes everything more organized, controlled, but sometimes contains an atmosphere of lifelessnes in it. (The opposition of Chaos & Order, of Dionysus & Apollo. To quote William Blake, "Without opposition, there is no progression.")
 
     > The work of improving the conditions of life, of making life safer and safer, had continued untill nothing more could be done. The result was what I saw!
     >
